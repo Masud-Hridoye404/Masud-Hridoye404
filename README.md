@@ -3,22 +3,29 @@
 # Masud-Hridoye404
 # Author- Masud
 # Auther- Hridoye 
-#![68747470733a2f2f632e74656e6f722e636f6d2f666c666c433647467a4f3841414141642f73756c74616e2d616c7265666165692d70726f6772616d6d65722e676966](https://github.com/Masud-Hridoye404/Masud-Hridoye404/assets/134224832/a55754bb-cb82-4543-a6e8-c1973c0cad57)
+#![68747470733a2f2f632e74656e6f722e636f6d2f666c666c433647467a4f3841414141642f73756c74616e2d616c7265666165692d70726f6772616d6d65722e676966]()
 
-#![68747470733a2f2f67696666696c65732e616c706861636f646572732e636f6d2f3132302f3132303234382e676966](https://github.com/Masud-Hridoye404/Masud-Hridoye404/assets/134224832/5042976c-fd69-4059-8652-edfeeb206a1c) Fuck Your System 🖕
+#![]() Fuck Your System 🖕
 
 
-<!--
-**Masud-Hridoye404/Masud-Hridoye404** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}} {{𝗕𝗔𝗡𝗚𝗟𝗔𝗗𝗘𝗦𝗛}}{{{{𝗣𝗬𝗧𝗛𝗢𝗡 𝗣𝗥𝗢𝗚𝗥𝗔𝗠𝗠𝗘𝗥}}}}
 
-Here are some ideas to get you started:
+🌐 Socials:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Behance [Facebook](https://facebook.com/{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
+
+💻 Tech Stack:{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
+
+C C++ Java Python LINUX Codeberg
+
+📊 GitHub Stats:{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
+
+🏆 GitHub Trophies{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
+
+✍️ Random Dev Quote{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
+
+🔝 Top Contributed Repo{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
+
+![](https://github-contributor-stats.{{HRIDOYE-MASUD0}}vercel.app/api?username=ariyan5140&limit=5&theme=dark&combine_all_yearly_contributions=true)
+
+😂 Random Dev Meme{{HRIDOYE-MASUD0}}{{𝗖𝗬𝗕𝗘𝗥}}{{𝗞𝗜𝗡𝗚}}
